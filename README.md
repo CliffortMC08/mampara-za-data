@@ -1,0 +1,1 @@
+# mampara-za-data
